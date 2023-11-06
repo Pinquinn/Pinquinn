@@ -1,4 +1,4 @@
-### Hi there 👋
+👋👋👋rakker10 is a nerd UwU👋👋👋
 
 <!--
 **Pinquinn/Pinquinn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
